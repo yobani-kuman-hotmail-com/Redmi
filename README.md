@@ -1,0 +1,2 @@
+# Redmi
+Hacking ético y contramedidas   • Craqueo de contraseñas  • Ataques de contraseña  • Identificar varias herramientas para descifrar contraseñas  • Formulación de contramedidas para el descifrado de contraseñas  • Privilegios en aumento  • Ejecución de aplicaciones  • Registradores de teclas y spywares  • Contramedidas de spyware y keyloggers  • Ocultar archivos  • Comprender los rootkits  • El uso de esteganografía  • Cubriendo pistas https://t.me/Yobani_kuman     "Obtenga todas las ideas sobre piratería de sistemas".   ➖  ➖   ⚜ÚNETE PARA MÁS⚜    ➖ ➖
